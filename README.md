@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cIngsoc
+- 👋 Hi, I’m @i1ngsoc
 - 😄 Pronouns: He/They
 
 <!---
