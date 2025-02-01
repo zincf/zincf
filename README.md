@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @1ngsoc
-- 😄 Pronouns: He/They
+Nothing here...
 
 <!---
 1Ingsoc/1Ingsoc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
