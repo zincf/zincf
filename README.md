@@ -1,4 +1,4 @@
-Nothing here...
+# Go away...I beg. #
 
 <!---
 1Ingsoc/1Ingsoc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
