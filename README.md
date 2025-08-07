@@ -1,6 +1,6 @@
 ## Go away...I beg. ##
 
-<sup> pfp by twitter @EroMkk (why is he so cute 😭) </sup>
+<sup> pfp by twitter [@EroMkk](https://twitter.com/EroMkk) (why is he so cute 😭) </sup>
 
 <sup> sleepy... </sup>
 
